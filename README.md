@@ -7,7 +7,11 @@ https://lemon-sand-0d4734910.1.azurestaticapps.net/
 
 #  YUMMY FOODS
 
-One of the most popular college resturant in the capital, CU resturant enjoys a large hall that can accommodate more than 150 students at a given time. Famous for its a huge egg-shaped snack in a bread jacket with lots of stuffing. Apart from the famed chops, the menu includes chicken pakora, chicken stew or chicken curry, roti, dalpuri, alu dum, ghooghni, noodles, burgers, biscuits and cakes from Monginis, and of course tea, coffee , aerated drinks, samosas and spring rolls at a reasonably low price, the canteen serves as a perfect adda for enthusiasts. CU resturant , located in mohali chnadigarh, has an exceptionally huge campus, stretching across an area of more than 200 acres. But it is the only resturant that is considered the favourite hangout zone by students. A wide variety of food is in the offering at the lowest rates and keeps student pretty pleased.
+Yummy food is scrumptious, delicious, delectable, luscious, great tasting, much more than tasty, really appetizing, lip-smacking; This is the word everyone wants to hear when bringing food to the table. Yummy food is never unpalatable, plain tasting, distasteful or disgusting.
+coming to burgers its just osum with MOUTH WATERING flavour Freshness was still like “smothered,” “loaded,” “simple,” and “fixings” to describe their burger preferences. Some direct consumer responses highlight all these findings below: "Juicy, big, loaded with toppings of my choice."
+
+
+
 
 # Landing page : 
 
