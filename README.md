@@ -55,7 +55,7 @@ coming to burgers,noodels,desserts ,its just osum with MOUTH WATERING flavour Fr
 # U CAN CHECK THE VIDEO FOR THIS PROJECT BY CLICKING ON THE LINK BELOW
 <br>
 
-# [Project video](https://youtu.be/AnqDyx7UWPk)
+# [Project video](https://www.youtube.com/watch?v=dYDpdjQqYhQ)
 
 <br>
 
