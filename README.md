@@ -8,7 +8,7 @@ https://lemon-sand-0d4734910.1.azurestaticapps.net/
 #  YUMMY FOODS
 
 Yummy food is scrumptious, delicious, delectable, luscious, great tasting, much more than tasty, really appetizing, lip-smacking; This is the word everyone wants to hear when bringing food to the table. Yummy food is never unpalatable, plain tasting, distasteful or disgusting.
-coming to burgers its just osum with MOUTH WATERING flavour Freshness was still like “smothered,” “loaded,” “simple,” and “fixings” to describe their burger preferences. Some direct consumer responses highlight all these findings below: "Juicy, big, loaded with toppings of my choice."
+coming to burgers its just osum with MOUTH WATERING flavour Freshness was still like “smothered,” “loaded,” “simple,” and “fixings” to describe their burger preferences. Some direct consumer responses highlight all these findings below: "Juicy, big, loaded with toppings of my choice." and coming to greens ...our yummy greens that rocks the taste...it is sooo healthy to eat greens consumers get a good and fresh healthy food at our site. we ill make dishes by using organic veggies.so many people they wish to buy.
 
 
 
