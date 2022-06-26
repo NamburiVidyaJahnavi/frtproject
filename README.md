@@ -15,29 +15,38 @@ One of the most popular college resturant in the capital, CU resturant enjoys a 
 
 ![2022-06-26 (1)](https://user-images.githubusercontent.com/106302575/175818649-807c4cce-433e-416e-aa38-c803e15f96a4.png)
 
-# Burgers page :
+# BURGERS page :
 
 
 
 ![2022-06-26 (2)](https://user-images.githubusercontent.com/106302575/175818865-4e720155-9ef1-47d5-87c2-e4bd36faf01e.png)
 
 
-# Gallery
+# FRIES PAGE:
+
+![2022-06-26 (3)](https://user-images.githubusercontent.com/106302575/175819579-a5f9f93e-4ed6-4726-878e-5e77d1a72fcb.png)
 
 
-![WhatsApp Image 2022-05-20 at 7 32 08 PM](https://user-images.githubusercontent.com/85225156/169544732-8143db5d-ae9f-4023-a7d8-270f0c492c14.jpeg)
+# GREENS page:
+
+![2022-06-26 (4)](https://user-images.githubusercontent.com/106302575/175819649-d5aedd77-8728-4723-a88b-4045864b0cfb.png)
 
 
-# Chef
+# NOODELS Page 
 
-![WhatsApp Image 2022-05-20 at 7 35 16 PM](https://user-images.githubusercontent.com/85225156/169545214-6cd2a179-3d5e-434d-8d6c-37126b335900.jpeg)
+![2022-06-26 (5)](https://user-images.githubusercontent.com/106302575/175819700-16702598-ba43-45a4-b425-1133351a64bd.png)
+
+# DESSERTS page:
+
+![2022-06-26 (6)](https://user-images.githubusercontent.com/106302575/175819836-2deeba8b-874f-4012-83c8-a209a48de632.png)
 
 
-# Contact Page 
+# devoleped by :
 
-![WhatsApp Image 2022-05-20 at 7 37 17 PM](https://user-images.githubusercontent.com/85225156/169545825-328569b4-ee53-4a5f-b21a-4aa92fece6f7.jpeg)
+![Uploading 2022-06-26 (7).png…]()
 
 <br>
+
 
 # U CAN CHECK THE VIDEO FOR THIS PROJECT BY CLICKING ON THE LINK BELOW
 <br>
