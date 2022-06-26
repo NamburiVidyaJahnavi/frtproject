@@ -43,7 +43,7 @@ One of the most popular college resturant in the capital, CU resturant enjoys a 
 
 # devoleped by :
 
-![Uploading 2022-06-26 (7).png…]()
+![2022-06-26 (7)](https://user-images.githubusercontent.com/106302575/175819965-c9c76f8e-d1f9-4bbf-9bbb-a514f6536027.png)
 
 <br>
 
